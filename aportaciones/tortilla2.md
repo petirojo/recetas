@@ -1,0 +1,5 @@
+Cómo preparar unas tortitas caseras. Adivina, adivinanza, ¿quién acaba de desayunar tortitas? De paso que me hice el pudin de pan preparé la masa de tortitas y han sido todo un éxito en casa.
+
+No puedo dejar de compartir esta nueva receta de tortitas, muy sencillas y sobre rápidas de preparar, en menos de 20 minutos tienes el desayuno preparado para toda la familia. No hay como una de nuestras recetas de postres para un desayuno o una merienda en familia.
+
+Los clásicos pancakes o tortitas son muy famosas como desayuno en EEUU. Los pancakes, pancaques o panqueques, varios nombres para el mismo tipo de tortita, una mezcla de leche, harina y levadura que se mezcla y a la plancha. Dicho así cualquiera pensaría que no se aleja demasiado de las filloas gallegas propias del Carnaval o de las crêpes. Pero la verdad es que no tienen nada que ver. aunque las he hecho para desayunar, las tortitas son ideales como merienda. Si encima tenéis niños en casa tenéis plan para un día lluvioso de domingo.
